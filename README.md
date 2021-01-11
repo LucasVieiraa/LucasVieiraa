@@ -6,4 +6,5 @@ I am studying javascript, html and css, i finished my college and i'm focusing o
 
 💬Get in touch
 ▫ Instagram: @lucass.viieira
+
 ▫ Email: lucasgomes114@gmail.com
