@@ -5,6 +5,7 @@ I am studying javascript, html and css, i finished my college and i'm focusing o
 🌎 São Paulo Brazil
 
 💬Get in touch
+
 ▫ Instagram: @lucass.viieira
 
 ▫ Email: lucasgomes114@gmail.com
